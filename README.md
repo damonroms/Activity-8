@@ -1,4 +1,4 @@
-Team Name: OG
+Team Name: Legendary
 
 Members:
 
